@@ -9,3 +9,4 @@ the cake is a lie
 when you can't get down, find a haystack
 This drink, I like it. ANOTHER!! *CRASH*
 *Intense drumming music* ... *Intense drumming music restarts* ... *Intense drumming--* "GET ON WITH IT!!"
+"Sire, I think I have a plan." *sounds of building* *cat screaches* --to be cont.--
